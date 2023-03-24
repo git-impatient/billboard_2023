@@ -1,3 +1,7 @@
+# Poker Face
+
+## Lady Gaga
+
 "Poker Face" is a song by American singer Lady Gaga from her debut studio album, The Fame (2008).
 It was released on September 23, 2008, as the album's second single. It is a synth-pop song in 
 the key of G♯ minor, following in the footsteps of her previous single "Just Dance", but with a
