@@ -1,5 +1,6 @@
-# Dire Straits
-## Brother in Arms
+# Brothers in Arms
+
+## Dire Straits
 
 From BBC music reviews : [https://www.bbc.co.uk/music/reviews/86rg/](https://www.bbc.co.uk/music/reviews/86rg/)
 
